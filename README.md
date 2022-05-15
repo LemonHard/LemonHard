@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LemonHard
+- 👀 I’m interested in Love & Life
+- 🌱 I’m currently learning Love & Life
+- 💞️ I’m looking to collaborate on Love & Life
+- 📫 How to reach me ..? Love !
